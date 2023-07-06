@@ -1,4 +1,4 @@
-# December 2022 Meeting of the Ecology Curriculum Advisors  
+# April 2023 Meeting of the Ecology Curriculum Advisors  
 
 Meeting took place on **Tuesday 25 Apr 2023 ⋅ 15:00 – 16:00 UTC**
 
